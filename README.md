@@ -1,1 +1,1 @@
-# takeshitakoyaki10.github.io
+# takeshitakoyaki10
